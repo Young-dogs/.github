@@ -33,7 +33,7 @@ Partnering with global leaders such as Danone, Edding, Goldcar, ISS, Maurten, Me
 
 ---
 
-### 🌐 Connect With Us
+### 🌐 Connect with us
 
 * **Website:** [young-dogs.com](https://young-dogs.com)
 * **Network:** [LinkedIn](https://linkedin.com)
