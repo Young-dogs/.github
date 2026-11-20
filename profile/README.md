@@ -35,8 +35,8 @@ Partnering with global leaders such as Danone, Edding, Goldcar, ISS, Maurten, Me
 
 ### 🌐 Connect with us
 
-* **Website:** [young-dogs.com](https://young-dogs.com)
-* **Network:** [LinkedIn](https://linkedin.com)
+* **Website:** [young-dogs.com](https://www.young-dogs.com)
+* **Network:** [LinkedIn](https://www.linkedin.com/company/young-dogs-ecommerce/)
 * **HQ:** Young-dogs España SL, Asturias, Spain 🇪🇸
 
 ---
